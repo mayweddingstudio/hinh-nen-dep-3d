@@ -1,7 +1,5 @@
 # hinh-nen-dep-3d
 Màn Hình Bạn Xứng Đáng Đẹp Hơn – Thử Ngay Bộ Hình Nền 3D Đẹp Này Đi
-# hinh-nen-dep-3d
-Kho Hình Nền Đẹp 3D – Đổi Nền Là Đổi Mood
 # Hình Nền Đẹp 3D, 4K Cho Điện Thoại & Máy Tính
 
 Bộ sưu tập **hình nền đẹp 3D** chất lượng cao (3D, 4K, ảo, cute, ngầu) dành cho điện thoại và máy tính. Tất cả hình ảnh được tối ưu để hiển thị sắc nét, mang lại hiệu ứng chiều sâu và trải nghiệm thị giác ấn tượng.
